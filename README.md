@@ -7,4 +7,4 @@
 
 🤝 Open to collaborations on innovative projects and open-source contributions.
 
-📫 Reach me at rahat@webermelon.com
+📫 Reach me at n.karim.rahat@gmail.com
